@@ -15,3 +15,9 @@ TWEET: https://twitter.com/ExcitedEnnui/status/780157354801262594
 
 Cs1nkRwUkAAt3IU.jpg
 https://twitter.com/HolyJunkie/status/778392219912769536
+
+
+
+<p />
+<br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br />
+https://twitter.com/RealNewRasputin/status/780167959486410752
