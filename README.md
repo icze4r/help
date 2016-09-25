@@ -1,8 +1,10 @@
 # help
 
-  Hi, I just need a place to put all the things I'm gonna use later on for the Help page.  I'm also using this as an opportunity to figure out how Github works.
+  Hi, I just need a place to put all the things I'm gonna use later on for the Help page.
+  I'm also using this as an opportunity to figure out how Github works.
   
-    Most of these images are only going to be used after I ask the people who made them for direct permission.  If I don't ask for direct permission, I'm going to be embedding them.
+    Most of these images are only going to be used after I ask the people who made them for direct permission.
+    If I don't ask for direct permission, I'm going to be embedding them.
   
   sWjjJmW.png -- Poster version of HolyJunkie (Karl)'s drawing.  He drew this amazingly fast.  9-25-2016.
   IMGUR: http://imgur.com/sWjjJmW
