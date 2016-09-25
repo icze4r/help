@@ -21,3 +21,11 @@ https://twitter.com/HolyJunkie/status/778392219912769536
 <p />
 <br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br />
 https://twitter.com/RealNewRasputin/status/780167959486410752
+
+
+
+<p />
+<br />
+
+it begins <p />
+http://imgur.com/a/8Kpv1
