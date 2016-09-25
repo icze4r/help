@@ -8,4 +8,6 @@
   
   sWjjJmW.png -- Poster version of HolyJunkie (Karl)'s drawing.  He drew this amazingly fast.  9-25-2016.
   IMGUR: http://imgur.com/sWjjJmW
-  TWEET: https://twitter.com/ExcitedEnnui/status/780157354801262594
+
+<p />
+TWEET: https://twitter.com/ExcitedEnnui/status/780157354801262594
