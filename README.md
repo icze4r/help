@@ -49,3 +49,9 @@ Other nice things
 
 <p />
 https://www.instagram.com/fscwasteland/
+<p />
+http://foosweechin.tumblr.com/archive
+<p />
+https://twitter.com/jontronshow
+<p />
+https://www.youtube.com/jontronshow
