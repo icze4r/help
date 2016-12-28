@@ -1,5 +1,8 @@
 # help
 
+
+<img src="https://github.com/icze4r/help/blob/master/CmMGsksVYAASUaE.jpg" />
+
   Hi, I just need a place to put all the things I'm gonna use later on for the Help page. <br />
   I'm also using this as an opportunity to figure out how Github works.
   
