@@ -3,7 +3,7 @@
 
 <img src="https://github.com/icze4r/help/blob/master/CmMGsksVYAASUaE.jpg" />
 
-  Hi, I just need a place to put all the things I'm gonna use later on for the Help page. <br />
+  Hi, I just need a place to put all the things I'm gonna use later on for <s>the Help page.</s> <b>everything,</b> <i>apparently</i> <br />
   I'm also using this as an opportunity to figure out how Github works.
   
     Most of these images are only going to be used after I ask the people who made them for direct permission.
